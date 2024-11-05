@@ -1,16 +1,17 @@
-## Hi there 👋
+##oii sou a yasmin 👋
 
-<!--
-**Lenarahyas/Lenarahyas** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started:
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+aqui estão algumas qualidades sobre mim
+
+- 🔭 atualmente estou estudando
+- 🌱 gosto de jogar vôlei
+- 👯 quero atar na área da medicina
+- 🤔 gosto de ver as redes sociais
+- 💬 amo viajar
+- 📫 para entrar em contato comigo: yasmin.soares.pereira@escola.pr.gov.br
+- 😄 Pronouns: ela/dela
+
+
+![](https://media2.giphy.com/media/v1.Y2lkPTc5MGI3NjExbm9rcXdxZ3dvYWJ2YTQxNDY5bGllZmx6c3Zoczg4OTJ5MTRqMnF6eiZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/Ft4B2jykesyHzGAxJf/giphy.webp)
+
