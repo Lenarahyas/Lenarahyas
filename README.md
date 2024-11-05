@@ -13,5 +13,5 @@ aqui estão algumas qualidades sobre mim
 - 😄 Pronouns: ela/dela
 
 
-![](https://media2.giphy.com/media/v1.Y2lkPTc5MGI3NjExbm9rcXdxZ3dvYWJ2YTQxNDY5bGllZmx6c3Zoczg4OTJ5MTRqMnF6eiZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/Ft4B2jykesyHzGAxJf/giphy.webp)
+![](https://media1.giphy.com/media/v1.Y2lkPTc5MGI3NjExMmswNW04aXA5MWtwMHJ0bmtyOWtqenh2YnFoa2thOWZ2M2tjcGlkcCZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/sdHSBKwf3Gxf5aCWph/giphy.webp)
 
