@@ -15,3 +15,6 @@ aqui estão algumas qualidades sobre mim
 
 ![](https://media1.giphy.com/media/v1.Y2lkPTc5MGI3NjExMmswNW04aXA5MWtwMHJ0bmtyOWtqenh2YnFoa2thOWZ2M2tjcGlkcCZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/sdHSBKwf3Gxf5aCWph/giphy.webp)
 
+
+
+[Madelyn Cline](https://youtu.be/5uxPYlvOlrE?si=7LhfyXp39FnayC3U)
